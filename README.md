@@ -2,7 +2,7 @@
 - 👀 I’m interested in otherdeed
 - 🌱 I’m currently learning how to earn more
 - 💞️ I’m looking to collaborate on koda
-- 📫 How to reach me ...
+- 📫 How to reach me twitter dm always open
 
 <!---
 yunshun29223/yunshun29223 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
